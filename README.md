@@ -3,5 +3,5 @@
 - 👋 Hi, I’m @DuckSong510
 - 👀 I’m interested in Experimental AI
 - 🌱 I’m currently learning Python
-- 😄 Pronouns: He not him
+- 😄 Pronouns: He not him because i'll never be him
 - ⚡ Fun fact: I hmmm uh ummmm i uh idk
